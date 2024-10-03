@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-## 虽然当时 https://vme50.icu 喵！
+## 虽然但是 https://vme50.icu 喵！
